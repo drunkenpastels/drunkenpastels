@@ -23,7 +23,7 @@
 <br />
 
 <p align="center"> 
-$${\color{#afdfe3}" send \space my \space love \space on \space a \space wire, \space life \space you \space up \space everytime  " }$$
+$${\color{#afdfe3}" send \space my \space love \space on \space a \space wire, \space lift \space you \space up \space everytime  " }$$
 
 </p>
 
