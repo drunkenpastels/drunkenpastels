@@ -23,7 +23,7 @@
 <br />
 
 <p align="center"> 
-$${\color{#afdfe3}" send \space my \space love \space on \space a \space wire, \space lift \space you \space up \space everytime  " }$$
+$${\color{#afdfe3}" she \space can \space make \space hell \space feel \space just \space like \space home \space <3 " }$$
 
 </p>
 
